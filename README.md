@@ -7,7 +7,7 @@ Curso gratuito: Inglês
 
 https://kultivi.com/cursos/idiomas/ingles
 
-Didiconário interativo:
+Diciconário interativo:
 
 https://www.linguee.com.br/
 
