@@ -1,7 +1,7 @@
 # empregabilidade
 Empregabilidade
 
-Envio para: https://almeida-cma.github.io/receber/
+https://programador.emjuizdefora.com/
 
 Curso gratuito: Inglês
 
